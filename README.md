@@ -1,1 +1,1 @@
-ky hua tera wada
+sanskar kahar
